@@ -1,1 +1,8 @@
 # CodeWars-Answers
+
+Hasan projecteto fork kardam
+
+Hasannnnnnnnnnnnnnnnnnnnnnnnnnnnn
+TOooooooooooooooooooooooo 
+diiiiiiiiiiiigeeeeeeeeeee kiiiiiiiiiiiiiiiiiii 
+hastiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
